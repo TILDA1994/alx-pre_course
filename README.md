@@ -1,0 +1,1 @@
+growth mindset and Grit is the motto
